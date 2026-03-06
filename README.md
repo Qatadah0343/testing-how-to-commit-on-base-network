@@ -2,4 +2,4 @@
 trying to learn how to commit on github 
 is good exploring the network
 really love the chain
-base is the
+base i
